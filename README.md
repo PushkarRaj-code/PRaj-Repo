@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @PushkarRaj-code
 - 📫 How to reach me: pushkarcsi@gmail.com
-- 😄 Pronouns: He/Him
 
 
 <!---
